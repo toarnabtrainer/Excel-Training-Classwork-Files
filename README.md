@@ -1,5 +1,10 @@
 # Excel-Training-Classwork-Files
 
+**GitHub Link:**<br>
+https://github.com/toarnabtrainer/Excel-Training-Classwork-Files<br>
+**or**<br>
+https://tinyurl.com/ya25c3u6
+
 <hr>
 
 **MS-Office/O365 Reference Tutorial Links -**<br>
