@@ -8,7 +8,15 @@ https://tinyurl.com/ya25c3u6
 **GMeet Link:**<br>
 https://meet.google.com/ugx-iskt-vbc
 
-<hr>
+**MS-Teams Link:** <br>
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_MGQ0MWQ0MGItYzEzNS00OTdjLThlYmMtOGMzNmQ2YWUwNWIz%40thread.v2/0?context=%7b%22Tid%22%3a%22ff6114ce-6904-43f4-83a2-11ea43d58b83%22%2c%22Oid%22%3a%2240936497-561b-4e40-95f5-1655f81c8574%22%7d
+<br> **or** <br>
+https://tinyurl.com/2s3yxjnr
+
+**NotePad.PW Instance:** <br>
+https://notepad.pw/bpLgGkjRl9MeljJ19ct2 or https://tinyurl.com/37f73pry
+
+<hr/>
 
 **MS-Office/O365 Reference Tutorial Links -**<br>
 * **MS-Office 2007:** https://edu.gcfglobal.org/en/topics/office2007/
