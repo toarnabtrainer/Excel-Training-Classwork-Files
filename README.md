@@ -5,6 +5,13 @@ https://github.com/toarnabtrainer/Excel-Training-Classwork-Files<br>
 **or**<br>
 https://tinyurl.com/ya25c3u6
 
+**Training File Google Drive Link:**<br>
+https://bit.ly/34f29Dk  or<br>
+**Training File One Drive Link:**<br>
+https://bit.ly/3eRH70f
+
+<hr>
+
 **GMeet Link:**<br>
 https://meet.google.com/ugx-iskt-vbc
 
