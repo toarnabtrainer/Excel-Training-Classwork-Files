@@ -12,6 +12,11 @@ https://bit.ly/3eRH70f
 
 <hr>
 
+**Pre-Test on MS-Excel (1):** https://bit.ly/39QFw7T
+
+<hr>
+
+
 **GMeet Link:**<br>
 https://meet.google.com/ugx-iskt-vbc
 
