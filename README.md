@@ -12,7 +12,8 @@ https://bit.ly/3eRH70f
 
 <hr>
 
-**Pre-Test on MS-Excel (1):** https://bit.ly/39QFw7T
+**Pre-Test on MS-Excel (1):** https://bit.ly/39QFw7T- <br>
+**Post-Test on MS-Excel (2):** https://bit.ly/3ruth6W-
 
 <hr>
 
